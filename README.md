@@ -1,2 +1,1 @@
-Student at Zealand Roskilde.
-At my final semester
+Degree in Computer Science 
