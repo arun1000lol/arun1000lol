@@ -1,1 +1,1 @@
-Degree in Computer Science 
+AP graduate in Computer Science 
